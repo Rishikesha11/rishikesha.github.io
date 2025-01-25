@@ -1,2 +1,2 @@
-# Welcome to Rishikesha's blog sutras
+# Welcome: Rishikesha's sutras
 
