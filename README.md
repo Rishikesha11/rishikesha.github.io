@@ -1,2 +1,2 @@
-# rishikesha.github.io
-Rishikesha's blog sutras
+# Welcome to Rishikesha's blog sutras
+
